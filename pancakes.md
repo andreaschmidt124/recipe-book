@@ -9,7 +9,7 @@ Ingredients:
 1 tablespoon baking powder
 ½ teaspoon salt
 1 ¾ cups (420ml) milk
-2 large eggs
+3 large eggs
 3 tablespoons melted butter (or oil)
 1 teaspoon vanilla extract (optional)
 Butter or oil for cooking

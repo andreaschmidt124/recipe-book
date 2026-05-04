@@ -1,4 +1,4 @@
-Ingredients
+Other Ingredients
 2 cups (250g) all-purpose flour
 2 tbsp granulated sugar
 1 tbsp baking powder
